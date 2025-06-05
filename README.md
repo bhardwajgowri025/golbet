@@ -1,4 +1,4 @@
-# Golbet Türkiye – Sporun Dijital Dünyası
+# Kazanmanın Yeni Adı: Golbet Türkiye
 
 **Golbet** Türkiye, sporseverler için tasarlanmış, zengin içerik ve güncel bilgiler sunan modern bir dijital platformdur. Futbol, basketbol ve daha birçok popüler branş hakkında son gelişmeleri ve analizleri kolayca takip edebilirsiniz.
 
